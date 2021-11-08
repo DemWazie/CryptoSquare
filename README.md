@@ -1,4 +1,5 @@
 #🔳 CryptoSquare 🔳
+
 🔳 CryptoSquare 🔳 Community Rules
 
 Οδηγίες για να μπείτε στο main room του Greek Cryptocurrency Community
